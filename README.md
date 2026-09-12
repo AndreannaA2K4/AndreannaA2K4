@@ -8,11 +8,11 @@ I have a strawpage if you're interested!! https://andreannaspage.straw.page
 > [!NOTE]  
 > I am socially anxious. Please be patient with me!
 
-## I'm really into
+### I'm really into
 - Searching for a World That Doesn't Exist
 - Minecraft horror in general
 
-### I sorta like
+#### I sorta like
 - Roblox ARGs/unfiction
 - Misc Roblox stuff...
   - Block Tales
