@@ -1,16 +1,26 @@
-## Hi there 👋
+# Andreanna!
+Hello everypony! (Profile for PonyTown)
 
-<!--
-**AndreannaA2K4/AndreannaA2K4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I have a strawpage if you're interested!! https://andreannaspage.straw.page
 
-Here are some ideas to get you started:
+<b>Proship DNI please!</b>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+> [!NOTE]  
+> I am socially anxious. Please be patient with me!
+
+## I'm really into
+- Searching for a World That Doesn't Exist
+- Minecraft horror in general
+
+### I sorta like
+- Roblox ARGs/unfiction
+- Misc Roblox stuff...
+  - Block Tales
+  - Tornado Alley Ultimate
+  - DOORS
+- Toontown <i>(the MMORPG)</i>
+- Five Nights at Freddy's series
+- Undertale/Deltarune <i>(including alternate universes)</i>
+
+> [!NOTE]
+> I am a sharing King in Yellow/Hastur selfshipper. Doubles are free to interact!
