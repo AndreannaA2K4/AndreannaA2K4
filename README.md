@@ -1,7 +1,7 @@
 # Andreanna!
 Hello everypony! (Profile for PonyTown)
 
-I have a strawpage if you're interested!! https://andreannaspage.straw.page
+I'm someone from <s>the oven</s> Texas. That's all you need to know.
 
 <b>Proship DNI please!</b>
 
@@ -18,6 +18,7 @@ I have a strawpage if you're interested!! https://andreannaspage.straw.page
   - Block Tales
   - Tornado Alley Ultimate
   - DOORS
+  - Phighting
 - Toontown <i>(the MMORPG)</i>
 - Five Nights at Freddy's series
 - Undertale/Deltarune <i>(including alternate universes)</i>
