@@ -1,7 +1,7 @@
 # Andreanna!
 Hello everypony! (Profile for PonyTown)
 
-I'm someone from <s>the oven</s> Texas. That's all you need to know.
+I'm someone from <s>the oven</s> Texas. I'm also a huge fan of author self-inserting myself into my stories for some reason
 
 <b>Proship DNI please!</b>
 
